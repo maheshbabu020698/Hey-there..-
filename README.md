@@ -34,7 +34,7 @@ It showcases his **professional experience, education, skills**, and **contact l
 
 - [Portfolio](https://bold.pro/my/maheshbabu-r-230922035450)
 
-- [LinkedIn](https://www.linkedin.com/in/maheshbabu-r-230922035450/)
+- [LinkedIn](https://www.linkedin.com/in/mahesh-babu-r-88a114212/)
 
 
 
